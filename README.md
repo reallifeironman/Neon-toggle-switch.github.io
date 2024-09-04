@@ -1,1 +1,1 @@
-🔥 Live Preview → https://reallifeironman.github.io/Neon-toggle-switch.github.io/
+🔥 Live Preview → https://reallifeironman.github.io/Neon-toggle-switch.github.io
